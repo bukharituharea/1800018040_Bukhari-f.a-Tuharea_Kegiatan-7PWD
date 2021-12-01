@@ -1,0 +1,1 @@
+# 1800018040_Bukhari-f.a-Tuharea_Kegiatan-7PWD
